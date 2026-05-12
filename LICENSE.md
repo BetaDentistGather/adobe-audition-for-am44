@@ -1,4 +1,4 @@
-# 
+# Adobe Audition for PC | Adobe Audition for Windows ultimate Template: plugin-support & batch-processing is the best Adobe Audition for PC | Adobe Audition for Windows template,
 
 
 
